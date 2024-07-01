@@ -1,0 +1,4 @@
+- 👋 你好！我是Jy-EggRoll！
+- 👀 我比较喜欢让人舒适的东西
+- 🌱 我正在学习HTML
+- 📫 我的邮箱：JyEggRoll@outlook.com
